@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUCI981018HCCXCS04
+CUCI981018HCCXCS04
